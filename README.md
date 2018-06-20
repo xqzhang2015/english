@@ -20,3 +20,13 @@
 
 ### References
 [www.dictionary.com](http://www.dictionary.com/browse/reception)
+
+[www.thoughtco.com: commonly-confused-words](https://www.thoughtco.com/commonly-confused-words-4133042)<br/>
+
+[]()<br/>
+
+[]()<br/>
+
+[]()<br/>
+
+[]()<br/>
